@@ -1,2 +1,0 @@
-# Prashanth_Goud_Resume
-Prashanth_Goud_Resume
